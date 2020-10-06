@@ -1,2 +1,0 @@
-sad
-good study
